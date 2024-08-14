@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChupetinhaDoNorte
+![image](https://github.com/user-attachments/assets/dfacd8d2-7499-46d0-8241-dd215263cdd6)- 👋 Hi, I’m @ChupetinhaDoNorte
 - 
 - 👀 I’m interested in em nada no momente
 - 
@@ -13,4 +13,5 @@ voce pode entrar em contato comigo
 @ajulya.__
 
 
-  ![](https://media1.tenor.com/m/eIG3LMfXxC0AAAAd/web-diva-tulla-luana-tulla-luana-fontes-dos-santos.gif)
+![](https://media1.tenor.com/m/VJ6JJw6Sl3kAAAAC/tulla-luana-doida.gif)  
+
